@@ -8,8 +8,8 @@ I have attached public api so respones will be slow if you want fast make sure y
 For hosting u can use pella.app & render.com 
 ♥️_______________________________♥️
 
-INSTA:@shivam.singhrajput._
- TG:@real_sh1vam
+INSTA:@sh1vam.py
+ TG:@sh1vampy
  You can contact for Tg bots
  full stack website Leak databases 
  Instagram followers likes Views 
